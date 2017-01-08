@@ -1,1 +1,1 @@
-Please visit Wiki pages. Thanks ^ ^
+Please visit [Wiki](https://github.com/hnaoto/timeline/wiki) pages. Thanks ^ ^
